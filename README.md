@@ -1,2 +1,0 @@
-# suvendrakumar.github.io
-
